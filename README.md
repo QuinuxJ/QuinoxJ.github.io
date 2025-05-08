@@ -1,3 +1,3 @@
-# Depression22.github.io
+# QuinoxJ.github.io
 
 Mi pagina
